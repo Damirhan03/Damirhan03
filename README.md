@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Damir
+- 👀 I’m interested in html / css / and smoll js / and smoll php
+- 🌱 I’m currently learning design /
+- 💞️ I’m looking to collaborate on /
+- 📫 How to reach me: / vk / inst /
